@@ -1,4 +1,5 @@
-# こんにちはlfvmぁもぱmvf亞ゔぉpmvcおfmゔぁおmかcjぎfv
+ こんにちはlfvmぁもぱmvf亞ゔぉpmvcおfmゔぁおmかcjぎfv
 vkなkcモアm
 
-へブラジルが来ました
+tabataへ 私はブラジルに来ました。
+ブラジルのサンバの歴史を終わらせてきます。
